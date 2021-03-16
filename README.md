@@ -18,4 +18,4 @@
 > Jueves 24 de junio
 
 - BMA 17, 18, 19
-- Noticias 3 
+- Noticias 3
